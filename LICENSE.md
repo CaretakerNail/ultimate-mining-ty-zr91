@@ -1,4 +1,4 @@
-
+ultimate mining tycoon professional Scripts offers the most advanced ultimate mining tycoon Script, with infinite resources and one-hit kill. Perfect
 
 
 
